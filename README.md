@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nishanstha12
-- 👀 I’m interested in Web Designing
-- 🌱 I’m currently learning Computer Science in 11th grade.
+- 👀 I’m interested programming
+- 🌱 +2 passed
 - 📫 How to reach me ...
 - https://www.instagram.com/nishanstha98/
 
